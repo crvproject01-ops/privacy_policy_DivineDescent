@@ -1,1 +1,1 @@
-# privacy_policy_DivineDescent
+# privacy_policy_LightAscent
